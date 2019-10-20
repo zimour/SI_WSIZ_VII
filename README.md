@@ -1,0 +1,2 @@
+# SI_WSIZ_VII
+SI na 7 sem WSIZ
